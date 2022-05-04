@@ -11,6 +11,6 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...content creation
 - 📫 How to reach me: ...[linkedin](https://www.linkedin.com/in/anugya-baraik-986500210)
 - 😄 Pronouns: ...She/her
-- ⚡ Fun fact: ...love to share secret with pet![image](https://user-images.githubusercontent.com/83193763/166625235-4787193f-76bc-4b52-8f8a-c8f2da1e66b5.png)
+- ⚡ Fun fact: ...love to share secret with pet!	U+1F601
 
 
