@@ -15,6 +15,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...content creation
 - 📫 How to reach me: ...[linkedin](https://www.linkedIn.com/in/anugya-baraik-986500210), [twitter](https://www.twitter.com/AnugyaBaraik)
 - 😄 Pronouns: ...She/her
-- ⚡ Fun fact: ...love to share secret with pet!😁
 
 
